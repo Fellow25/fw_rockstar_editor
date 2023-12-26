@@ -1,1 +1,3 @@
-# fw_rockstar_editor
+Fellow | Discord
+
+https://discord.gg/wewesnerQd
