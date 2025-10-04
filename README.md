@@ -1,2 +1,1 @@
-Micky Studio: https://discord.gg/pZX7hadmXb
-Tebex: https://mickystudio-dev.tebex.io
+https://dsc.gg/scriptedbyfellow
